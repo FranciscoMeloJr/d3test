@@ -1,0 +1,4 @@
+Ain’t it fun
+Living in the real world
+Ain’t it good
+Being all alone
